@@ -1,2 +1,2 @@
 # firstman
-Your path to the starts
+Your path to the stars begins here.
